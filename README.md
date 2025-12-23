@@ -36,6 +36,9 @@ If you have any Business Proposal, you can contact us using the Below Contact De
 
 - Reach Now  : [ Contact Details ](https://www.kenzabyte.com/contact-us/) ✅
 
+### Release History :
+You can claim your free udpates here : [ Product Updates & Releases History ](https://www.kenzabyte.com/updates-and-releases/) ✅
+
 #
 # 📁 Output Files Generated
 
